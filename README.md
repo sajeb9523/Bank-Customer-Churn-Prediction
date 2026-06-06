@@ -163,7 +163,7 @@ The developed solution can help banks:
 
 **Sajeb**
 
-MBA Student | Data Analytics & Business Intelligence Enthusiast
+MBA Student | Finance Analytics 
 
 ---
 
